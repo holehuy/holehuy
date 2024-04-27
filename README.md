@@ -59,7 +59,6 @@ I'm an full-stack and devops developer with a passion for new technologies that 
 
 #
 
-### 📺 Latest YouTube Videos
 
 #
 
